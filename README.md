@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @JJBanana13
+- 👀 I’m interested in PC
+- 🌱 I’m currently learning C#
+- 📫 How to reach me admin@astorhosting.cloud
+- 😄 Pronouns: Er/sie
